@@ -8,4 +8,6 @@
 
 [![赞赏码T.png](https://s1.ax1x.com/2023/02/01/pSBxcZT.png)](https://imgse.com/i/pSBxcZT)
 
-## **鸣谢lufunc**：https://github.com/lufunc/timer
+
+## 鸣谢：
+lufunc**：https://github.com/lufunc/timer
