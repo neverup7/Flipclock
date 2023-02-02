@@ -5,7 +5,8 @@
 [![图片1.png](https://s1.ax1x.com/2023/02/01/pSDMKnf.png)](https://imgse.com/i/pSDMKnf)
 
 [![图片2.png](https://s1.ax1x.com/2023/02/01/pSDMQHS.png)](https://imgse.com/i/pSDMQHS)
-[![图片2.png][(https://s1.ax1x.com/2023/02/01/pSDMQHS.png](https://i.hd-r.cn/48e29ef5cd5304b0d1864cc275b19b24.png)
+![赞赏码](https://i.hd-r.cn/410b545ad593bde29893c1fc39a1a7b7.png)
+
 
 
 
