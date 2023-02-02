@@ -6,7 +6,8 @@
 
 [![图片2.png](https://s1.ax1x.com/2023/02/01/pSDMQHS.png)](https://imgse.com/i/pSDMQHS)
 
-[![赞赏码.png](https://s1.ax1x.com/2023/02/01/pSBxcZT.png)](https://imgse.com/i/pSBxcZT)
+![赞赏码.png](https://pic.imgdb.cn/item/63db9dabac6ef86016d4b71c.png)
+
 
 
 ## 鸣谢：
